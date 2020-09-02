@@ -11,3 +11,6 @@ Thank you for being so kind.
 
 I wil not disappoint you for eoy.
 I will do well and make you proud.
+
+To end off, 
+HAPPY TEACHERS DAY!
